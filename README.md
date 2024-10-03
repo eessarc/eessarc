@@ -24,7 +24,6 @@
 <p> <strong> YouTube: </strong> https://www.youtube.com/@Eessa </p>
 <p> <strong> Instagram: </strong> https://www.instagram.com/eessarc/ </p>
 <p> <strong> TikTiok: </strong> https://www.tiktok.com/@eessarc </p>
-<p> <strong> SoundCloud: </strong>  </p>
 <p> <strong> Spotify: </strong>  https://open.spotify.com/user/31eialu6okgmdba2q6wx34tj7hba?si=37bdd6acbece4b01&nd=1&dlsi=18bb4219655b4c47 </p>
 <p> <strong> SoundCloud: </strong>  https://soundcloud.com/eessarc </p>
 <p> LabelRadar </p> <strong> https://www.labelradar.com/labels/eessa/profile <p> To send demo-submission </p> </strong>
